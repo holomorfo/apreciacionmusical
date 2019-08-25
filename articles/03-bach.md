@@ -1,0 +1,31 @@
+## Johan Sebastian Bach y la polifonía
+
+En este nuevo post, te voy a platicar de uno de los compositores más famosos. Así como Vivaldi, también se le agrupa en el periodo barroco. En general, cuando se habla de barroco significa que es algo muy adornado y complicado. Bach vivió en alemania en wl siglo XVII y su música es un referente histórico. Pero antes de escuchar su música, vamos a hablar un poco de conceptos.
+
+En la música tenemos tres componentes que son muy importantes: Melodía, armonía y rítmo. Un compositor juega con diferentes combinaciones de ellos para generar efectos y transmitir ideas o emociones. Si tenemos una melodía nadamas, se dice que la música es monofónica. Esto sería en el caso que tenemos una flauta o un instrumento que sólo puede tocar una nota a la vez.
+
+Ahora, ¿qué pasa si tenemos varios instrumentos que pueden tocar notas a la vez? como la guitarra o el piano. O por ejemplo, si tocamos una flauta acompañada por guitarra.
+
+En estos casos podemos tener varias combinaciones, de momento te voy a presentar dos:
+
+- Homofonía: Podríamos decir que este es el caso cuando un instrumento lleva la melodía y otro lo acompaña, es decir. Puede pasar también que en el mismo instrumento sucedan las dos cosas, por ejemplo, que en el piano, la mano derecha lleve la melodía, y la izquierda los acordes o armonías.
+
+- Polifonía: En este caso, los dos instrumentos llevan melodías principales, pero se intercalan y se turnan. Esto es un caso muy interesante por que escribir música donde cada voz sea independiente y además suene bien, termina siendo un gran rompecabezas. Cabe aclarar que no es necesario que haya muchos instrumentos para que algo sea polifónico. Puede ser que en el piano por ejemplo, el pianista toque diferentes melodías al mismo tiempo. Esto, como te imaginarás, es super difícil.
+
+
+Vamos a pasar a los ejemplos musicales, que creo es lo más interesante. En el caso de Bach, hay una colección de obras muy famosas llamada "El Clave bien temperado" que son dos libros con 24 piezas que cada una se divide en dos: un preludio y una fuga. En otro post te platicaré qué significa lo de Clave y Bien temperado, pero digamos de momento que son para un tipo de piano. Para todo fin práctico, aunque no es totalmente cierto, digamos que los preludios son un poco más del tipo: melodía y acompañamiento, mientras las fugas son polifónicas.
+
+Aquí te presento dos de ellas para que te vayas familiarizando con estos sonidos.
+
+El primer video te presenta el preludio en Do mayor, tiene una visualización muy bonita donde se puede ver cómo una mano lleva mas o menos la melodía, mientras la otra sostiene las notas largas como acompañamiento.
+
+https://www.youtube.com/watch?v=frxT2qB1POQ
+
+Ahora tenemos otro video, ahora de una fuga, donde puedes escuchar y ver, cómo no hay una voz principal, sino que se van alternando y juegan como un rompecabezas muy interesante.
+
+https://www.youtube.com/watch?v=nWUOVkTE_Gc
+
+
+Bueno, en conclusión, la música puede organizarse de muchas maneras, en est post hablamos de dos formas: homofonía y polifonía y vimos un ejemplo de dos piezas barrocas que lo utilizan. Poco a poco vamos a ir viendo cómo la música va evolucionando y cómo cada compositor tiene su propio estilo. Espero se te haya hecho interesante. Hasta pronto.
+
+
